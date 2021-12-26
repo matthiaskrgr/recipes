@@ -35,3 +35,9 @@ Cooking time: ¨~15 minutes
 4) mix lentils and broth with the carrots
 5) cook for around 15 minutes
 6) add salt, pepper, sugar, oregano and tomato paste to taste
+
+#### Notes
+You can also add some coconut milk (and a little less broth) to make everything more creamy.
+
+Goes well with Pasta or just as is. 
+
