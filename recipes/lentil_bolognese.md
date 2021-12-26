@@ -1,13 +1,13 @@
 
 # Lentil Carrot Bolognese
 
-Prep time: 10-15 minutes (guessed)
-Cooking time: 15 minutes
+Prep time: 10-15 minutes (guessed)  
+Cooking time: 15 minutes  
 
-Vegan
+Vegan  
 
 ### Ingredients:
-for ~2 servings
+for ~2 servings  
 
 100 g red lentils  
 1 onion or shallot  
@@ -21,8 +21,8 @@ pepper
 oregano  
 suger  
 
-Prep time: 10-15 minutes (guessed)
-Cooking time: ¨~15 minutes
+Prep time: 10-15 minutes (guessed)  
+Cooking time: ¨~15 minutes  
 
 
 (I like to scale this one up to 500g of red lentils and 500g of carrots)
@@ -37,7 +37,6 @@ Cooking time: ¨~15 minutes
 6) add salt, pepper, sugar, oregano and tomato paste to taste
 
 #### Notes
-You can also add some coconut milk (and a little less broth) to make everything more creamy.
-
-Goes well with Pasta or just as is. 
+You can also add some coconut milk (and a little less broth) to make everything more creamy.  
+Goes well with Pasta or just as is.  
 
