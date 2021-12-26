@@ -19,11 +19,7 @@ oil
 salt  
 pepper  
 oregano  
-suger  
-
-Prep time: 10-15 minutes (guessed)  
-Cooking time: ¨~15 minutes  
-
+sugar  
 
 (I like to scale this one up to 500g of red lentils and 500g of carrots)
 
